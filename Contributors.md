@@ -922,6 +922,7 @@ chiu
 - [Marouane-Elgoumiri](https://github.com/Marouane-Elgoumiri) 
 - hi!!!👋👋👋
 - nuraaaiiiii 
+- [Jeevan Jyot Singh](https://github.com/JeevanJyot55)
 - [Gracy Garg](https://github.com/amoiba42)
 - [Aditya Narayanan S](https://github.com/adityanarayanan343)
 - [Sandhya Srinivasan](https://github.com/sandhyasrini)
